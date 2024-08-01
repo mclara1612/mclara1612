@@ -9,3 +9,4 @@
 - 📬 Você pode entrar em contato comigo
 - 💬 00001116559511SP@al.educacao.sp.gov.br
 👋🏼🥰
+![](![silviosantos](https://github.com/user-attachments/assets/105b6207-bf79-46b6-949d-0e7e45f4e82e)
